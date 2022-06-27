@@ -1,0 +1,4 @@
+- 👋 meu nome é Yasmin
+- 👀 estudo no colégio Duque de Caxias,1°B
+- 🌱 eu gosto de assistir séries, de ler e cozinhar
+- 💞️ pretendo aprender a criar e desenvolver sites
